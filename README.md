@@ -1,0 +1,1 @@
+# Snagit-activation-by-Gbgt
